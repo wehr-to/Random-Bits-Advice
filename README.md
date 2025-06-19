@@ -1,1 +1,1 @@
-- Not much to this repository, this is a collection of random bits of advice and insightful things I find and or think of
+- Not much to this repository, this is a collection of random bits of advice and insightful things I find and or think of! 
